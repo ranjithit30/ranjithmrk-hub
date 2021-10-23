@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ranjithmrk-hub
+- 👋 Hi, I’m Ranjith
 - 👀 I’m from information technology department
 - 📫 How to reach me - mail to 17it025@gmail.com
 
